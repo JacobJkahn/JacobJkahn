@@ -1,6 +1,6 @@
 # Jacob James Kahn
 
-**Board Director · Digital & Business Transformation, Lockheed Martin (1LMX) · General Partner, HBS Phoenix Fund**
+**Independent Board Director · General Partner, HBS Phoenix Fund**
 
 Certified Private Company Governance Director (Private Directors Association) · Candidate, NACD Directorship Certification
 
